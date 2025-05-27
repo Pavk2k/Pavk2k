@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pavankumar Harikrishna
-- 👀 I’m interested in Finance and Finance related activities
-- 🌱 I’m currently learning Master of Science in Finance @ ASU
+- 👀 I’m interested in Gaming and Finance related activities
+- 🌱 I’m a Master of Science in Finance graduate @ ASU
 - 📫 How to reach me Email - pavankumar2k23@gmail.com
 - 😄 Pronouns: He/Him
 
